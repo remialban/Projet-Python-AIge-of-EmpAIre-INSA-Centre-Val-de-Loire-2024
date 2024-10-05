@@ -1,0 +1,1 @@
+# projet-python-aige-of-empaire-insa-2024
